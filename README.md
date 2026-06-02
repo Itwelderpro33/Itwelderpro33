@@ -82,10 +82,10 @@ _3M | Heredia, Costa Rica_
 
 ---
 
-### 📋 **Owner / Operations Manager**
+### 📋 **Welding Owner / Operations Manager**
 
 _Independent Contractor – Technical Services | San José, Costa Rica_  
-**Jun 2021 – Feb 2022**
+**Jun 2025 – Current**
 
 - Managed daily operations of a technical services business.
 - Supervised technicians and coordinated project schedules.
